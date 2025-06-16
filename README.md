@@ -1,4 +1,4 @@
-# PromptSlayers_Sayantika_Jazzee2025
+# Prompt Slayers_Sayantika_Jazzee2025
 
 ## 🚀 Pitch Video  
 [Click here to watch the pitch video on YouTube](https://youtu.be/V-BONfkqkEQ?si=y1dNTCz3DJSfXH9H)
